@@ -4,7 +4,11 @@ forgive us but peep the figma: https://www.figma.com/file/uZMPngs4AO2wQPs0turD10
 
 
 Best Regards,
+
 Ayub Ali
+
 Josh Fendi
+
 Kuan-Yi Chen
+
 Naomi Chou
